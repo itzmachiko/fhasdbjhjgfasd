@@ -8,3 +8,5 @@
 
 ### 3.Press Enter
 <img src="https://itzmachiko.tk/img/github/Screenshot 2022-07-08 182834.png" />
+
+The Quarry seems pretty fun, might play it soon
